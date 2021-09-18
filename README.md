@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zarash01
-- 👀 I’m interested in data science, machine learning, deep learning
-- 🌱 I’m currently learning hyperparameter tuning and...git/github.
+- 👀 I’m interested in data science, machine learning & deep learning.
+- 🌱 I’m currently learning automated hyperparameter tuning and deployment of ML models.
 - 📫 How to reach me ...
 
 <!---
