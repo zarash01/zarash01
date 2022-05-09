@@ -7,7 +7,7 @@ I have many other transferable skills, gathered through a rich history of divers
 Singer - presentation to an audience (from 12 to 7000).
 Songwriter - dedication to a craft, reaching no.1 in Asia selling 1.5 million.
 Music Teacher - Thorough research, ability to convey ideas in an accessible way.
-Administrator - Multitasking, prioritising, organising.
+Administrator - Multitasking, prioritising, organising, customer service.
 Medical Laboratory Scientist - attention to detail, strict adherance to procedures.
 Technical Writer - Commanding use of English, able to describe the usage of technology in a detailed manner.
 
